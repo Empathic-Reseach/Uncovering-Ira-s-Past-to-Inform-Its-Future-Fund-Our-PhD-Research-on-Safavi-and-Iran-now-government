@@ -51,7 +51,6 @@ Below is a curated list of grant opportunities tailored to this research, offeri
 
 | Grant Name                             | Deadline       | Funding Amount       | Link                                                                 |
 |----------------------------------------|----------------|----------------------|----------------------------------------------------------------------|
-
 | ASMEA Research Grants Program 2025     | April 30, 2025 | $2,500               | [ASMEA](https://www.asmeascholars.org/2025-research-grant-program)   |
 | Werner Mark Linz Memorial Grant 2025   | April 6, 2025  | Up to Â£10,000        | [GINGKO](https://www.gingko.org.uk/grants/werner-mark-linz-memorial-grant/) |
 | Kamran Djam Scholarships               | March 28, 2025 | Covers tuition fees for 3 years | [SOAS](https://www.soas.ac.uk/study/student-life/finance/scholarships/kamran-djam-scholarships) |
