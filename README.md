@@ -2,7 +2,7 @@
 
 https://grok.com/share/c2hhcmQtMg%3D%3D_c9e1e05f-e955-4c03-a28d-23b89e90229e
 
-# Uncovering Ira's Past to Inform Its Future: Fund Our PhD Research on Safavid and Islamic Republic Parallels
+# Uncovering Iran's Past to Inform Its Future: Fund Our PhD Research on Safavid and Islamic Republic Parallels
 
 We are excited to present a compelling PhD research project that explores the intricate historical and cultural parallels between the Safavid Empire (1501â€“1736) and the Islamic Republic of Iran (1979â€“present), with a keen focus on the pivotal role of Shia Islam in shaping their political and societal frameworks. This study seeks to bridge a significant gap in comparative historical research by offering fresh perspectives on Iranâ€™s resilience, religious dynamics, and enduring geopolitical importance. We are actively seeking funding to support this ambitious 12-month project, which promises to enrich academic discourse, inform contemporary policy discussions, and deepen our collective understanding of Iranâ€™s past and present. Your support can make this vision a reality.
 
